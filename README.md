@@ -1,3 +1,3 @@
-# NewtonsGravity - Shantanu Gupta
+# Deepak4Bharat - Deepak Kushwaha
 ### Visit Portfolio - 
-www.helloshantanu.ml
+
